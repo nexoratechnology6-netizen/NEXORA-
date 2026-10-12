@@ -1,1 +1,1 @@
-# NEXORA-
+NEXORA Technology
